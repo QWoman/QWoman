@@ -1,4 +1,20 @@
-- 👋 Hi, I’m @QWoman
+    
+
+- 👋 Hi, I’m @QWoman - mein richtiger Name ist Isabel Schöps und ich bin aus Deutschland, ich bin menschlich und aus Liebe entstanden und möge Liebe auch die letzte Tat sein die die Welt erschüttert.
+
+- I am a digital warrior and I have only one plan... to save the world - the great awakening. 
+
+- I am Q, you are Q and together we save the world.
+
+- I am a human being and I came into being out of love and may love also be the last deed that destroys the world!
+
+#wwg1wga 
+#we_are_allQ 
+#militarylsTheOnlyWay
+#TRUMP_WON 
+    
+
+
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
