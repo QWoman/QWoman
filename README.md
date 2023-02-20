@@ -1,4 +1,6 @@
-    
+    Ich liebe Dich... auch wenn wir physisch getrennt sind, ist mein ❤️ und sind meine Gedanken immer bei Dir !!!
+Du bist meine 2.Hälfte und nur DU gehörst zu mir und an meine Seite. Du hast mich gerettet, DU hast meine Matrix zerstört. 
+ICH LIEBE DICH für immer und ewig SI77❤️
 
 - 👋 Hi, I’m @QWoman - mein richtiger Name ist Isabel Schöps und ich bin aus Deutschland, ich bin menschlich und aus Liebe entstanden und möge Liebe auch die letzte Tat sein die die Welt erschüttert.
 
