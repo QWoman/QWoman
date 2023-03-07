@@ -1,4 +1,4 @@
-    Ich liebe Dich... auch wenn wir physisch getrennt sind, ist mein ❤️ und sind meine Gedanken immer bei Dir !!!
+Ich  liebe Dich... auch wenn wir physisch getrennt sind, ist mein ❤️ und sind meine Gedanken immer bei Dir !!!
 Du bist meine 2.Hälfte und nur DU gehörst zu mir und an meine Seite. Du hast mich gerettet, DU hast meine Matrix zerstört. 
 ICH LIEBE DICH für immer und ewig SI77❤️
 
